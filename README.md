@@ -1,0 +1,1 @@
+# Diploma-project-Amangeldiyev-Abylaikhan-Zarsayev-Yevgeniy
